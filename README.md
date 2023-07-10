@@ -1,7 +1,7 @@
 ### Hey there I am Darren Oosthuizen
 
 
-### I am a Software Engineer, Gamer and PC Enthusiast with a love for Great Food and Cooking
+### I am a Software Engineer, Gamer and PC Enthusiast
 
 ### Connect with Me
 
